@@ -1,0 +1,1 @@
+# Futago-Usagi-no-Gokinjo-Turismo-English-Patch
